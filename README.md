@@ -9,7 +9,7 @@ The original was bleaker — less closure, more collapse.
 Think of it as a blooper reel, if bloopers could fracture reality.
 
 
-She went to the restroom to freshen up when a voice spoke.
+She went to the restroom to freshen up when a voice spoke.<br>
 “Did you enjoy the life I gave you?” it asked.
 Sarah saw a human silhouette standing in behind her with no discerning features, as if in full vantablack body paint. A chill went down her spine, but she asked, “Who are you?”
 “No need to be afraid, Sarah. You can call me Ms. Rosenberg,” the voice replied, a familiar cadence in her tone.
