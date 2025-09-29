@@ -21,6 +21,6 @@ Ms. Rosenberg laughed. “Before I answer that question, I would like you to mee
 “I do, but I don't see the relevance here. What do you mean?” asked Sarah.<br>
 “I’ve been watching, telling your story, Sarah,” replied Narrator Sarah.<br>
 “So I’m supposed to believe none of this is real?” asked Sarah, existential dread in her eyes.<br>
-“For you, it’s as real as it gets. I only wish it were my reality. I tried to give you a near-perfect life, Sarah,” said Ms. Rosenberg.<br>
+“For you, it’s as real as it gets. Cogito, ergo sum. I only wish it were my reality. I tried to give you a near-perfect life, Sarah,” said Ms. Rosenberg.<br>
 “Ms. Rosenberg, I still don't understand.” said Sarah, her mind reeling.<br>
 “I am The Architect, Sarah. Your life will go on, but I am no longer needed to guide it.” said Ms. Rosenberg, and with that, they vanished as mysteriously as they had appeared, while Ms. Rosenberg’s voice faded into nothing, leaving Sarah’s reality unchanged as if nothing had happened.
