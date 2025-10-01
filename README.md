@@ -11,7 +11,7 @@ Think of it as a blooper reel, if bloopers could fracture reality.<br>
 <br>
 She went to the restroom to freshen up when a voice spoke.<br>
 “Did you enjoy the life I gave you?” it asked.<br>
-Sarah saw a human silhouette standing in behind her with no discerning features, as if in full vantablack body paint. A chill went down her spine, but she asked, “Who are you?”<br>
+Sarah saw a human silhouette standing behind her with no discerning features, as if in full vantablack body paint. A chill went down her spine, but she asked, “Who are you?”<br>
 “No need to be afraid, Sarah. You can call me Ms. Rosenberg,” the voice replied, a familiar cadence in her tone.<br>
 “What do you mean, the life you gave me?” asked Sarah.<br>
 Ms. Rosenberg laughed. “Before I answer that question, I would like you to meet someone.” A woman, identical to Sarah, emerged from a stall.<br>
